@@ -11,4 +11,4 @@ here are my changes for project 2.0
 
 project 2 edits
 
-Project 2 edits - Madi King
+Project 2 edits - Madison King
