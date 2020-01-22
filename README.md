@@ -7,6 +7,8 @@ these are my changes for project 2
 
 Ryan Cline changes 
 
+here are my changes for Project 2
+
 here are my changes for project 2.0
 
 project 2 edits
