@@ -16,3 +16,5 @@ project 2 edits
 Project 2 edits - Madison King
 
 Sarah M changes
+
+John Threatt project 2 changes
